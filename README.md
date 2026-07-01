@@ -8,36 +8,52 @@ Nossa história será sobre carreira de um atleta
 
 Se o objetivo é criar uma trajetória de carreira para Zlan Uzmurudov como jogador de futebol, aqui estão seis caminhos plausíveis que ele pode seguir:
 
-1. Carreira em um grande clube europeu ⭐
-Inicia em uma academia de base.
-Estreia no time profissional aos 17–18 anos.
-É contratado por um clube de uma das cinco principais ligas da Europa.
-Conquista títulos nacionais e internacionais.
-Torna-se referência em sua posição e disputa prêmios individuais.
-2. Ídolo do futebol nacional
-Desenvolve toda a carreira em clubes do seu país.
-Torna-se capitão de uma equipe tradicional.
-Conquista campeonatos nacionais e copas.
-É lembrado como um dos maiores jogadores da história do clube.
-3. Especialista em ligas internacionais
-Atua em diversos países (Turquia, Holanda, Bélgica, Portugal, Japão ou Arábia Saudita).
-Adquire experiência em diferentes estilos de jogo.
-Constrói uma carreira longa e financeiramente sólida.
-Fecha a carreira com mais de 500 partidas profissionais.
-4. Destaque da seleção nacional
-Convocado ainda jovem para as categorias de base.
-Estreia na seleção principal antes dos 21 anos.
-Disputa eliminatórias continentais e grandes torneios internacionais.
-Torna-se capitão e um dos maiores jogadores da história da seleção.
-5. Superação após lesão
-Sofre uma grave lesão no início da carreira.
-Passa por uma longa recuperação.
-Retorna aos gramados mais forte física e mentalmente.
-Conquista títulos importantes e vira exemplo de perseverança.
-6. Lenda do futebol e futuro treinador
-Encerra a carreira com centenas de jogos e diversos títulos.
-Obtém licença de treinador.
-Assume equipes de base e depois clubes profissionais.
-No futuro, torna-se treinador da seleção nacional ou de um grande clube, deixando um legado tanto como jogador quanto como técnico.
+A Jornada do Craque
 
-Esses seis caminhos oferecem trajetórias diferentes: sucesso internacional, protagonismo nacional, experiência global, destaque pela seleção, superação de adversidades e continuidade no futebol após a aposentadoria.
+Você é um jovem jogador de futebol de 17 anos que sonha em se tornar um grande craque. Hoje é o dia da peneira do maior clube do estado, e tudo depende das suas escolhas.
+
+Início
+
+Você acorda cedo, veste sua chuteira favorita e segue para o estádio. Ao chegar, percebe que há centenas de jogadores disputando poucas vagas.
+
+Escolha 1
+
+A) Você decide jogar de forma coletiva, tocando a bola e ajudando o time. → Vá para Caminho A
+
+B) Você decide mostrar habilidade individual para chamar a atenção dos olheiros. → Vá para Caminho B
+
+Caminho A – Jogador de Equipe
+
+Os treinadores gostam da sua visão de jogo e você é selecionado para a fase final.
+
+Escolha 2A
+
+A1) Treinar duro todos os dias, mesmo cansado. → Vá para Final A1
+
+A2) Aproveitar a fama inicial e faltar aos treinos. → Vá para Final A2
+
+Final A1
+
+Seu esforço impressiona o treinador. Você estreia no time profissional aos 19 anos, conquista títulos nacionais e é convocado para a seleção. Seu nome entra para a história como exemplo de dedicação.
+
+Final A2
+
+Seu desempenho cai rapidamente. Outro jogador conquista sua vaga, e você precisa recomeçar em um clube menor. Você aprende que talento sem disciplina não é suficiente.
+
+Caminho B – Craque Individual
+
+Seus dribles chamam a atenção dos olheiros, mas alguns companheiros reclamam que você não passa a bola.
+
+Escolha 2B
+
+B1) Você aprende a jogar em equipe e melhora seu comportamento. → Vá para Final B1
+
+B2) Continua jogando apenas para si mesmo. → Vá para Final B2
+
+Final B1
+
+Você se torna um atacante completo, é contratado por um grande clube europeu e conquista a Liga dos Campeões. Anos depois, vence o prêmio de melhor jogador do mundo.
+
+Final B2
+
+Apesar do talento, nenhum grande clube confia em você. Sua carreira fica marcada pelo individualismo, e você percebe tarde demais que futebol é um esporte coletivo.
